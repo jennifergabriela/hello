@@ -1,7 +1,5 @@
-teste
 
-mjnjlkjnm,.n,mn,mnm,n,m
-Introduction
+Introdução
 ============
 
 ![Bower version](https://img.shields.io/bower/v/adminlte.svg)
