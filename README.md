@@ -8,4 +8,4 @@ O nascimento dessa escola teve origem quando o Sr. Arlindo Carvalho de Amorim, q
 De reunião em reunião desde o ano de 1987 e com a adesão de mais pessoas o sonho foi se concretizando e em 1988 foi criada e autorizada a funcionar no prédio da Escola Municipal Pró-Morar, inicialmente funcionando no período noturno.
 Arlindo lutou muito com seus companheiros, mas não viu seu sonho realizado, falecendo em 08 de julho de 1987 e a escola autorizada a funcionar no início de 1988.
 Pouco tempo, após a instalação da escola, no início de 1988, os companheiros de associação e a comunidade escolar decidiram que a escola deveria receber o nome daquele que um dia sonhou com uma melhor educação para a comunidade. Nascia a Escola Estadual Arlindo Carvalho de Amorim. 
-!["AdminLTE Presentation"](https://adminlte.io/AdminLTE2.png "AdminLTE Presentation")
+http://www.ctaarlindoamorim.seed.pr.gov.br/redeescola/escolas/9/690/7171/arquivos/Image/09069007171fa01g.jpg
